@@ -1,4 +1,4 @@
-**Characters**
+**Characters**<br /> 
 *Hiccup*
 *Toothless*
 *astrek*
